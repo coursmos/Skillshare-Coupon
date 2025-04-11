@@ -1,4 +1,4 @@
-# Skillshare Coupon
+# Skillshare Coupon Code (2025) – Claim 70% Discount
 
 <br> <div align="center"> <img src="https://github.com/coursmos/Skillshare-Coupon/blob/main/img/1%20Skillshare%20Coupon%20Code.png" alt="Skillshare Coupon Code" width="649" height="auto" /> </div> <br>
 
